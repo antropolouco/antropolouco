@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @antropolouco / sou o @antropolouco
+- 👋 Hi, I’m @antropolouco / Oi, sou o @antropolouco
 - 👀 I’m interested in many crazy things / Tenho interesse em muchas cosa loka
 - 🌱 I’m currently learning things that are worth for nerds, witches or both. / Atualmente estou aprendendo coisas que valem pra nerds, bruxas ou ambos.
 - 💞️ I’m looking to collaborate on whatever gets my attention. / Busco colaborar em qualquer coisa que tenha minha atenção.
